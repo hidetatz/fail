@@ -1,1 +1,1 @@
-# fail
+https://hidetatz.fail/
